@@ -1,4 +1,4 @@
-# 
+# Get the ultimate mean reversion trading bot with vip mean reversion trading bot Addon | risk-parity + parameter-optimization. Featuring risk-parity and parameter-optimization,
 
 
 
